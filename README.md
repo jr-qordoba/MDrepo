@@ -29,3 +29,9 @@ Personally, I disagree with their ideas.
 Personally, I believe that congenial work, with excitement and change, would do me good.
 
 But what is one to do?
+
+I did write for a while in spite of them; but it DOES exhaust me a good deal—having to be so sly about it, or else meet with heavy opposition.
+
+I sometimes fancy that in my condition if I had less opposition and more society and stimulus—but John says the very worst thing I can do is to think about my condition, and I confess it always makes me feel bad.
+
+So I will let it alone and talk about the house.
