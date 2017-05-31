@@ -17,3 +17,15 @@ John is a physician, and PERHAPS—(I would not say it to a living soul, of cour
 You see he does not believe I am sick!
 
 And what can one do?
+
+If a physician of high standing, and one's own husband, assures friends and relatives that there is really nothing the matter with one but temporary nervous depression—a slight hysterical tendency—what is one to do?
+
+My brother is also a physician, and also of high standing, and he says the same thing.
+
+So I take phosphates or phosphites—whichever it is, and tonics, and journeys, and air, and exercise, and am absolutely forbidden to "work" until I am well again.
+
+Personally, I disagree with their ideas.
+
+Personally, I believe that congenial work, with excitement and change, would do me good.
+
+But what is one to do?
